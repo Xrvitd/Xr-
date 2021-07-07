@@ -384,19 +384,19 @@ hhhh
 
 还跟我说啥看到我的证件了，然后看到我宿舍那么多显卡的盒子以为是个土豪剩的东西都不要了，所以就把值钱的东西都拿走了？？？
 
-<img src="D:\Dropbox\MyDocuments\Github\Xr-Biography\README.assets\b111.jpg" alt="宿舍惨状" style="zoom:23%;" />
+<img src="README.assets\b111.jpg" alt="宿舍惨状" style="zoom:23%;" />
 
 反正就是很离谱，所有的东西全给倒腾出来了。
 
-<img src="D:\Dropbox\MyDocuments\Github\Xr-Biography\README.assets\A377F0277C0FD7DD7CA18702ADC04681.jpg" alt="A377F0277C0FD7DD7CA18702ADC04681" style="zoom: 25%;" />
+<img src="README.assets\A377F0277C0FD7DD7CA18702ADC04681.jpg" alt="A377F0277C0FD7DD7CA18702ADC04681" style="zoom: 25%;" />
 
-<img src="D:\Dropbox\MyDocuments\Github\Xr-Biography\README.assets\A06D6936BAA99B5934A7F3EFE2F42752.jpg" alt="A06D6936BAA99B5934A7F3EFE2F42752" style="zoom:25%;" />
+<img src="README.assets\A06D6936BAA99B5934A7F3EFE2F42752.jpg" alt="A06D6936BAA99B5934A7F3EFE2F42752" style="zoom:25%;" />
 
 这里我就不给他匿名了，反正我写的这些东西也没几个人看，大家看到了也不要传播吧hhh知道就好，没必要传播了。
 
 然后这是他还回来的所有的赃物：
 
-<img src="D:\Dropbox\MyDocuments\Github\Xr-Biography\README.assets\737CEBD9037C334FF26C7BEF356A0FA3.jpg" alt="737CEBD9037C334FF26C7BEF356A0FA3" style="zoom:25%;" />
+<img src="README.assets\737CEBD9037C334FF26C7BEF356A0FA3.jpg" alt="737CEBD9037C334FF26C7BEF356A0FA3" style="zoom:25%;" />
 
 就很离谱好吧，我自己都没发现少了这么多东西，光那个一球拍就1k+了，再加上这些零零散散的东西差不多小2000了已经，还不算他给我摔碎在宿舍的各种东西。
 
@@ -432,7 +432,7 @@ hhhh
 
 然后给我发来一个这个
 
-<img src="D:\Dropbox\MyDocuments\Github\Xr-Biography\README.assets\233.png" alt="233" style="zoom:43%;" />
+<img src="README.assets\233.png" alt="233" style="zoom:43%;" />
 
 怎么说呢，tmd没有一点诚意，就是要表明我给你道过歉了，现在是我对了，你再追究就是你有问题，暗示你让我道歉你有问题。
 
